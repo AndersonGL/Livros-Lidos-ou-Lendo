@@ -6,7 +6,7 @@
 
 ### Não espere por apoio (Junho 2025)
 
-### Dez conselhos para uma pessoa de 30 anos
+### Dez conselhos para uma pessoa de 30 anos (Junho 2025)
 
 ### Ultra-Apredinzado
 
