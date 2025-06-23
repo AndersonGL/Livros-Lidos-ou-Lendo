@@ -8,6 +8,8 @@
 
 ### Dez conselhos para uma pessoa de 30 anos (Junho 2025)
 
+### Kaisen 1% Melhor a Cada dia (Lendo)
+
 ### Ultra-Apredinzado
 
 ### Como fazer amigos e influenciar pessoas
