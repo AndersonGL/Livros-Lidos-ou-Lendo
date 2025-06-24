@@ -8,7 +8,9 @@
 
 ### Dez conselhos para uma pessoa de 30 anos (Junho 2025)
 
-### Kaisen 1% Melhor a Cada dia (Lendo)
+### Kaisen 1% Melhor a Cada dia (Junho de 2025)
+
+### Vai dar muito errado antes de dar certo (Lendo)
 
 ### Ultra-Apredinzado
 
