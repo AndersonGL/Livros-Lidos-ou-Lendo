@@ -10,7 +10,7 @@
 
 ### Kaisen 1% Melhor a Cada dia (Junho de 2025)
 
-### Vai dar muito errado antes de dar certo (Lendo)
+### Vai dar muito errado antes de dar certo (Junho de 2025)
 
 ### Ultra-Apredinzado
 
