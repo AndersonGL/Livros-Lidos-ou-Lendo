@@ -6,9 +6,9 @@ Este repositório reúne uma lista dos livros que estou lendo ou já li, focados
 
 ## Livros Concluídos 
 
-- **Programação em HTML5"**  
-- **Na Raça"**  
-- **Ansiedade tem voz: "Aprenda a calá-la com sabedoria"**  
+- **Programação em HTML5**  
+- **Na Raça**  
+- **Ansiedade tem voz: "Aprenda a calá-la com sabedoria**  
 - **As Sete Prioridades da Vida**  
 - **Não Espere por Apoio**  
 - **Dez Conselhos para uma Pessoa de 30 Anos**  
