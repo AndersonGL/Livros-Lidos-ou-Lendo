@@ -12,8 +12,9 @@
 
 ### Vai dar muito errado antes de dar certo (Junho de 2025)
 
+### As 48 leis do poder (Lendo) 
+
 ### Ultra-Apredinzado
 
 ### Como fazer amigos e influenciar pessoas
 
-### As 48 leis do poder
