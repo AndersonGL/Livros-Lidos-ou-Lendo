@@ -18,8 +18,15 @@ Este repositório reúne uma lista dos livros que estou lendo ou já li, focados
 ## Livros em Leitura
 
 - **As 48 Leis do Poder**  
+
+
+---
+
+## Livros Futuros para Leitura
+
 - **Ultra-Aprendizado**  
-- **Como Fazer Amigos e Influenciar Pessoas**  
+- **Como Fazer Amigos e Influenciar Pessoas**
+  
 
 ---
 
