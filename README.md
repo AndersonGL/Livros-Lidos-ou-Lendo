@@ -4,7 +4,7 @@ Este repositório reúne uma lista dos livros que estou lendo ou já li, focados
 
 ---
 
-## Livros Concluídos (Junho 2025)
+## Livros Concluídos 
 
 - **Ansiedade tem voz: "Aprenda a calá-la com sabedoria"**  
 - **As Sete Prioridades da Vida**  
