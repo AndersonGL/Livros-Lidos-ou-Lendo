@@ -6,6 +6,8 @@ Este repositório reúne uma lista dos livros que estou lendo ou já li, focados
 
 ## Livros Concluídos 
 
+- **Programação em HTML5"**  
+- **Na Raça"**  
 - **Ansiedade tem voz: "Aprenda a calá-la com sabedoria"**  
 - **As Sete Prioridades da Vida**  
 - **Não Espere por Apoio**  
@@ -18,7 +20,7 @@ Este repositório reúne uma lista dos livros que estou lendo ou já li, focados
 ## Livros em Leitura
 
 - **As 48 Leis do Poder**  
-
+- **JavaSCript + CSS + DOM**  
 
 ---
 
