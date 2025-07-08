@@ -48,5 +48,5 @@ Sinta-se à vontade para me contactar para troca de indicações e debates sobre
 
 ---
 
-*Anderson Gouveia Lignelli — Junho 2025*
+*Anderson Gouveia Lignelli — Julho 2025*
 
