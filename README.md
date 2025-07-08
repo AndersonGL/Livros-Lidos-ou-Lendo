@@ -1,4 +1,4 @@
-# 📚 Livros Lidos e Em Leitura
+# 📚 Livros lidos e em leitura
 
 Este repositório reúne uma lista dos livros que estou lendo ou já li, focados em desenvolvimento pessoal, produtividade e autoconhecimento.  
 
