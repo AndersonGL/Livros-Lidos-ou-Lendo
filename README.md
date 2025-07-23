@@ -14,7 +14,7 @@ Este repositório reúne uma lista dos livros que estou lendo ou já li, focados
 - **Dez Conselhos para uma Pessoa de 30 Anos**  
 - **Kaizen: 1% Melhor a Cada Dia**  
 - **Vai Dar Muito Errado Antes de Dar Certo**
-- **As 48 Leis do Poder**  
+- **As 48 Leis do Poder - Robert Greene**  
   
 
 ---
