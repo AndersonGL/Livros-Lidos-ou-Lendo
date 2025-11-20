@@ -16,13 +16,13 @@ Este repositório reúne uma lista dos livros que estou lendo ou já li, focados
 - **Vai Dar Muito Errado Antes de Dar Certo**
 - **As 48 Leis do Poder - Robert Greene**  
 - **Razões para não desistir: Quando a vida já não faz qualquer sentido**
-
+- **Ultra-Aprendizado - Scott H.Young**
 ---
 
 ## Livros em Leitura
 
 
-- **Ultra-Aprendizado - Scott H.Young**
+
 
 ---
 
@@ -50,5 +50,5 @@ Sinta-se à vontade para me contactar para troca de indicações e debates sobre
 
 ---
 
-*Anderson Gouveia Lignelli — Agosto 2025*
+*Anderson Gouveia Lignelli — Novembro 2025*
 
